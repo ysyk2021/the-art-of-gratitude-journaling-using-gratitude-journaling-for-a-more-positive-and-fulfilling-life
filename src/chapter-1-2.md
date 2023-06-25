@@ -1,4 +1,4 @@
-Introduction: Understanding the Connection Between Mindfulness, Gratitude, and Well-Being
+Understanding the Connection Between Mindfulness, Gratitude, and Well-Being
 =========================================================================================
 
 In today's fast-paced and often stressful world, it can be easy to get caught up in negative thoughts and emotions. However, by cultivating mindfulness and gratitude, we can improve our well-being and lead more fulfilling lives. In this book, we will explore the art of gratitude journaling and how it can help us develop a more positive and mindful outlook on life.
