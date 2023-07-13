@@ -1,4 +1,4 @@
-Part VI: Developing a Gratitude Journaling Practice: Measuring Progress and Success
+Measuring Progress and Success
 ===================================================================================
 
 Developing a gratitude journaling practice can have a significant impact on your life, helping you to focus on the positive and cultivate feelings of happiness and contentment. In this part of the book, we will explore strategies for measuring progress and success in your gratitude journaling practice.

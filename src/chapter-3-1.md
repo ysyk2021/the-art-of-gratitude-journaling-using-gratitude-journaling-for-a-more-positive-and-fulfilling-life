@@ -1,4 +1,4 @@
-Part II: Getting Started with Gratitude Journaling: Choosing a Journaling Method
+Choosing a Journaling Method
 ================================================================================
 
 Gratitude journaling is a powerful tool for cultivating feelings of positivity, joy, and contentment. But with so many different methods and approaches to gratitude journaling, it can be challenging to know where to begin. In this part of the book, we will explore strategies for choosing a gratitude journaling method that works best for you.

@@ -1,4 +1,4 @@
-Part VI: Developing a Gratitude Journaling Practice: Finding Local Gratitude Journaling Resources
+Finding Local Gratitude Journaling Resources
 =================================================================================================
 
 Developing a consistent gratitude journaling practice can be challenging, but there are many resources available to help you stay motivated and inspired. In this part of the book, we will explore strategies for finding local gratitude journaling resources that can support your practice.

@@ -1,4 +1,4 @@
-Part IV: Gratitude Journaling for Specific Areas of Life: Using Gratitude Journaling to Improve Relationships
+Using Gratitude Journaling to Improve Relationships
 =============================================================================================================
 
 Gratitude journaling can also improve our relationships with others. In this section, we'll explore specific ways in which gratitude journaling can help improve our relationships and techniques for incorporating gratitude journaling into our relationship practices.

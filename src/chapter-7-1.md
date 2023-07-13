@@ -1,4 +1,4 @@
-Part VI: Developing a Gratitude Journaling Practice: Creating a Consistent Practice
+Creating a Consistent Practice
 ===================================================================================
 
 Creating a consistent gratitude journaling practice is key to reaping the benefits of this powerful tool. In this section, we'll explore strategies for developing a gratitude journaling practice that works for you.

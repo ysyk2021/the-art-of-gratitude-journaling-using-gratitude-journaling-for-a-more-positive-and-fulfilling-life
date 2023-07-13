@@ -1,4 +1,4 @@
-Part III: Mindful Gratitude Journaling Techniques: Strategies for Incorporating Mindful Gratitude Journaling into Daily Life
+Strategies for Incorporating Mindful Gratitude Journaling into Daily Life
 ============================================================================================================================
 
 Incorporating mindful gratitude journaling into your daily life can help you cultivate a more positive and fulfilling mindset. In this section, we'll explore strategies for making gratitude journaling a habit that fits seamlessly into your routine.

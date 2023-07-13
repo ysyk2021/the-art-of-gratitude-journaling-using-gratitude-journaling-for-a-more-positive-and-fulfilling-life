@@ -1,4 +1,4 @@
-Part IV: Gratitude Journaling for Specific Areas of Life: Using Gratitude Journaling to Improve Physical Health
+Using Gratitude Journaling to Improve Physical Health
 ===============================================================================================================
 
 Gratitude journaling can also have a positive impact on physical health. In this section, we'll explore specific ways in which gratitude journaling can improve physical health and techniques for incorporating gratitude journaling into your physical health practice.

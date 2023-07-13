@@ -1,4 +1,4 @@
-Part I: Foundations of Gratitude Journaling: Benefits of Gratitude Journaling for Personal Growth
+Benefits of Gratitude Journaling for Personal Growth
 =================================================================================================
 
 Gratitude journaling is a powerful practice that can have significant benefits for personal growth and well-being. In this part of the book, we will explore the foundations of gratitude journaling and the benefits it can bring to your life.

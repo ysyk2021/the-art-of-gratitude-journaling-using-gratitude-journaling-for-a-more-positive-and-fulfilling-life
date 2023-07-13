@@ -1,4 +1,4 @@
-Part V: Overcoming Challenges in Gratitude Journaling: Managing Negative Thoughts and Emotions During Gratitude Journaling
+Managing Negative Thoughts and Emotions During Gratitude Journaling
 ==========================================================================================================================
 
 Gratitude journaling can be a powerful tool for cultivating a more positive and fulfilling life. However, like any practice, it can also present challenges. In this section, we'll explore strategies for overcoming negative thoughts and emotions during gratitude journaling.

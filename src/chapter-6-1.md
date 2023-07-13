@@ -1,4 +1,4 @@
-Part V: Overcoming Challenges in Gratitude Journaling: Dealing with Resistance to Gratitude Journaling
+Dealing with Resistance to Gratitude Journaling
 ======================================================================================================
 
 Gratitude journaling can be a transformative practice for cultivating a more positive and fulfilling life. However, sometimes we may face resistance to the practice. In this section, we'll explore strategies for overcoming resistance and embracing gratitude journaling.

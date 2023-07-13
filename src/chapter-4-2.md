@@ -1,4 +1,4 @@
-Part III: Mindful Gratitude Journaling Techniques: Advanced Mindful Gratitude Journaling Techniques
+Advanced Mindful Gratitude Journaling Techniques
 ===================================================================================================
 
 Once you've established a regular gratitude journaling practice, you may want to explore advanced techniques to deepen your connection to gratitude. In this section, we'll explore some advanced mindful gratitude journaling techniques.

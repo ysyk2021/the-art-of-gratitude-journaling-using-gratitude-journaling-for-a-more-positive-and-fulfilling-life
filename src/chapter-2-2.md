@@ -1,4 +1,4 @@
-Part I: Foundations of Gratitude Journaling: The Science behind Gratitude Journaling
+The Science behind Gratitude Journaling
 ====================================================================================
 
 Gratitude journaling is more than just a feel-good practice; it has been extensively studied and proven to have numerous benefits for mental and physical health. In this part of the book, we will explore the science behind gratitude journaling and its impact on personal growth and well-being.

@@ -1,4 +1,4 @@
-Part IV: Gratitude Journaling for Specific Areas of Life: Using Gratitude Journaling to Improve Mental Health
+Using Gratitude Journaling to Improve Mental Health
 =============================================================================================================
 
 Gratitude journaling can be a powerful tool for improving mental health. In this section, we'll explore specific ways in which gratitude journaling can help improve mental health and techniques for incorporating gratitude journaling into your mental health practice.

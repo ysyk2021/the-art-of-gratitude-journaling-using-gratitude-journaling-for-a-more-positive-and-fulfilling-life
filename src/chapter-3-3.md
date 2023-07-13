@@ -1,4 +1,4 @@
-Part II: Getting Started with Gratitude Journaling: Finding Inspiration for Your Practice
+Finding Inspiration for Your Practice
 =========================================================================================
 
 Starting a gratitude journaling practice can be both exciting and challenging. In this part of the book, we will explore strategies for finding inspiration for your practice to help you get started on the right foot.

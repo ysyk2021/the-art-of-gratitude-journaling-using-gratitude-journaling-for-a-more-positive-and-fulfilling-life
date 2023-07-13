@@ -1,4 +1,4 @@
-Part V: Overcoming Challenges in Gratitude Journaling: Strategies for Staying Motivated in Gratitude Journaling
+Strategies for Staying Motivated in Gratitude Journaling
 ===============================================================================================================
 
 Gratitude journaling can be a powerful tool for cultivating a positive and fulfilling life. However, it's not always easy to stay motivated in the practice. In this section, we'll explore strategies for overcoming common challenges and staying motivated in gratitude journaling.

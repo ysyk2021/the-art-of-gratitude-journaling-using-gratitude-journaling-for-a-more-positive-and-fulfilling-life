@@ -1,4 +1,4 @@
-Part II: Getting Started with Gratitude Journaling: Setting Goals for Your Gratitude Practice
+Setting Goals for Your Gratitude Practice
 =============================================================================================
 
 Gratitude journaling is a powerful tool that can help you cultivate a positive and fulfilling life. But, in order to get the most out of your gratitude practice, it's important to set goals and intentions for your journaling journey.

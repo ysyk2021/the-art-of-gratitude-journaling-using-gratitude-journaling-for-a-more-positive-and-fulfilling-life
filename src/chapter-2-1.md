@@ -1,4 +1,4 @@
-Part I: Foundations of Gratitude Journaling: What is Gratitude Journaling?
+What is Gratitude Journaling?
 ==========================================================================
 
 Gratitude journaling is a practice that involves intentionally focusing on the positive aspects of life and expressing gratitude regularly. In this part of the book, we will explore the foundations of gratitude journaling and how it can benefit personal growth and well-being.
