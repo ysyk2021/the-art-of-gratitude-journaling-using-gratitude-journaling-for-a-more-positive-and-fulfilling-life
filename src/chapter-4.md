@@ -43,5 +43,3 @@ Conclusion
 ----------
 
 Mindful gratitude journaling techniques can help individuals cultivate a deeper sense of appreciation and gratitude in their daily lives. By practicing basic and advanced techniques, as well as incorporating gratitude practices into daily life, individuals can create a more positive outlook on life and experience greater happiness and fulfillment.
-
-In the following chapters, we will explore additional tools and techniques for gratitude journaling, as well as tips for developing a sustainable and personalized gratitude practice.

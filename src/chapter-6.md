@@ -43,5 +43,3 @@ Conclusion
 ----------
 
 Overcoming challenges in gratitude journaling is an essential part of developing a sustainable and fulfilling practice. By addressing resistance, managing negative thoughts and emotions, and staying motivated, individuals can create a more positive and productive gratitude journaling practice that supports their overall well-being.
-
-In the following chapters, we will explore additional tools and techniques for gratitude journaling, as well as tips for developing a personalized and sustainable gratitude practice.

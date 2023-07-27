@@ -43,5 +43,3 @@ Conclusion
 ----------
 
 Developing a gratitude journaling practice is a personal and individualized process, but it does not have to be done alone. By creating a consistent practice, finding local gratitude journaling resources, and measuring progress and success, individuals can build a sustainable and fulfilling gratitude practice that supports their overall well-being.
-
-In the following chapters, we will explore additional tools and techniques for gratitude journaling, as well as tips for developing a personalized and sustainable gratitude practice.
