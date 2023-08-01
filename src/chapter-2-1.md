@@ -67,4 +67,4 @@ Gratitude journaling is more than just an activity---it is a mindset. Here are s
 Conclusion
 ----------
 
-Gratitude journaling is a transformative practice that cultivates a positive and fulfilling life. By embracing the power of gratitude, starting a gratitude journal, and adopting a gratitude mindset, you invite more joy, positivity, and contentment into your daily life. In the next chapters, we will explore various techniques and exercises to enhance your gratitude journaling practice and unlock its full potential for personal growth and happiness.
+Gratitude journaling is a transformative practice that cultivates a positive and fulfilling life. By embracing the power of gratitude, starting a gratitude journal, and adopting a gratitude mindset, you invite more joy, positivity, and contentment into your daily life.
