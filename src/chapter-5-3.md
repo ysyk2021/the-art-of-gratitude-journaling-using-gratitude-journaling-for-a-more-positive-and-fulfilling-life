@@ -1,5 +1,3 @@
-Using Gratitude Journaling to Improve Mental Health
-==============================================================
 
 Gratitude journaling not only enhances our overall well-being but also has a profound impact on our mental health. In this chapter, we will explore how practicing gratitude through journaling can improve mental health and contribute to a more positive and fulfilling life.
 

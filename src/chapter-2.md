@@ -1,5 +1,3 @@
-Part I: Foundations of Gratitude Journaling
-===========================================
 
 Gratitude journaling is a practice that involves intentionally focusing on the good things in our lives and expressing appreciation for them. Here are some foundational concepts to understand before starting your gratitude practice.
 
@@ -29,5 +27,4 @@ In addition to the scientific benefits, gratitude journaling can also promote pe
 * Cultivating gratitude can deepen our sense of empathy and compassion towards others.
 
 By understanding the foundations of gratitude journaling, we can approach the practice with intention and purpose, and reap the many benefits it has to offer.
-
 

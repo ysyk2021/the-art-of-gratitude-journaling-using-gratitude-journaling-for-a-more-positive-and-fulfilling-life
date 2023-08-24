@@ -1,5 +1,3 @@
-Managing Negative Thoughts and Emotions During Gratitude Journaling
-==============================================================================
 
 In this chapter, we will explore the importance of managing negative thoughts and emotions during gratitude journaling. While gratitude journaling is typically a positive and uplifting practice, it is natural to encounter negative thoughts or emotions from time to time. Learning how to effectively manage these challenges can enhance the overall experience and maximize the benefits gained from gratitude journaling.
 

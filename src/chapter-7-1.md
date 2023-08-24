@@ -1,5 +1,3 @@
-Creating a Consistent Practice
-=========================================
 
 Creating a consistent gratitude journaling practice is key to reaping its full benefits. While starting may be easy, maintaining the habit over time requires commitment and strategic approaches. In this chapter, we will explore practical tips and strategies to help you establish and maintain a consistent gratitude journaling practice for a more positive and fulfilling life.
 

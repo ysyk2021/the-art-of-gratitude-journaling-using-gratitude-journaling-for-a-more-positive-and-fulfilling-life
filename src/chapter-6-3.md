@@ -1,5 +1,3 @@
-Strategies for Staying Motivated in Gratitude Journaling
-===================================================================
 
 In this chapter, we will explore various strategies to help you stay motivated and committed to your gratitude journaling practice. While gratitude journaling can bring numerous benefits, it's natural to face challenges or fluctuations in motivation. By implementing these strategies, you can maintain a consistent and fulfilling gratitude practice.
 

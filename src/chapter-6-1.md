@@ -1,5 +1,3 @@
-Dealing with Resistance to Gratitude Journaling
-==========================================================
 
 In this chapter, we will explore various strategies to help you overcome resistance and obstacles that may arise in your gratitude journaling practice. Resistance can manifest in different forms, such as lack of motivation, skepticism, or feeling overwhelmed. By understanding and addressing these challenges, you can cultivate a more resilient gratitude practice.
 

@@ -1,5 +1,3 @@
-Part IV: Gratitude Journaling for Specific Areas of Life
-========================================================
 
 Gratitude journaling can be a powerful tool for improving various areas of your life. Here are some ways you can use gratitude journaling to cultivate more positivity and fulfillment in specific areas of your life.
 

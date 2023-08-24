@@ -1,5 +1,3 @@
-Basic Mindful Gratitude Journaling Techniques
-========================================================
 
 In this chapter, we will explore some fundamental techniques for practicing mindful gratitude journaling. By incorporating mindfulness into your gratitude practice, you can deepen your awareness, enhance the positive impact of gratitude, and cultivate a more positive and fulfilling life.
 

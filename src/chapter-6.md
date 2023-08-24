@@ -1,5 +1,3 @@
-Part V: Overcoming Challenges in Gratitude Journaling
-=====================================================
 
 While gratitude journaling can be a powerful tool for cultivating positive emotions and a more fulfilling life, it is not always easy to maintain a consistent practice. In this part, we will explore strategies for overcoming common challenges in gratitude journaling.
 

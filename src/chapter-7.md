@@ -1,5 +1,3 @@
-Part VI: Developing a Gratitude Journaling Practice
-===================================================
 
 Developing a gratitude journaling practice is a personal and individualized process. In this part, we will explore strategies for creating a consistent practice, finding local gratitude journaling resources, and measuring progress and success.
 

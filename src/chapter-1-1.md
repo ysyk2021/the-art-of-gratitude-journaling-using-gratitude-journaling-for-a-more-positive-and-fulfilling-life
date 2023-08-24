@@ -1,5 +1,3 @@
-The Importance of Gratitude Journaling for Personal Growth
-=====================================================================
 
 Gratitude journaling is not just a simple practice; it is a powerful tool that can significantly impact your personal growth and well-being. In this chapter, we will explore the importance of gratitude journaling in fostering personal growth and unlocking your potential for a more positive and fulfilling life.
 

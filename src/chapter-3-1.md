@@ -1,5 +1,3 @@
-Choosing a Journaling Method
-=======================================
 
 When it comes to gratitude journaling, there are various methods and approaches you can choose from. This chapter will guide you through different journaling methods, helping you find the one that resonates with your personality, preferences, and lifestyle. Remember, there is no right or wrong way to practice gratitude journaling -- it's all about finding what works best for you.
 

@@ -1,5 +1,3 @@
-Introduction
-============
 
 Gratitude journaling is a powerful tool that can help us cultivate a more positive and fulfilling life. In this book, we will explore the art of gratitude journaling and how it can benefit our personal growth and well-being.
 

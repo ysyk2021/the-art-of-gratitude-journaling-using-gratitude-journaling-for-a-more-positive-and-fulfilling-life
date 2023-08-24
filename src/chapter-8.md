@@ -1,5 +1,3 @@
-Conclusion
-==========
 
 Gratitude journaling is a powerful tool that can help you cultivate a more positive and fulfilling life. Through regular reflection on the good things in your life, you can develop a mindset of gratitude and appreciation that can improve your mental health, relationships, and overall well-being.
 
@@ -26,5 +24,4 @@ Maintaining a consistent gratitude journaling practice can be challenging, but i
 * Seek out support from friends, family, or online communities.
 
 Remember, the most important thing is to approach your gratitude practice with an open mind and a willingness to learn and grow. With dedication and persistence, gratitude journaling can become a lifelong habit that brings joy and positivity to your life.
-
 

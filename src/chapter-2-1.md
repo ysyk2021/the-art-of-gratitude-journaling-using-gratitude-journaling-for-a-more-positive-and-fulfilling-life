@@ -1,5 +1,3 @@
-What is Gratitude Journaling?
-========================================
 
 Gratitude journaling is a powerful practice that can transform your life, bring about positive changes, and cultivate a sense of fulfillment. In this chapter, we will explore the essence of gratitude journaling and its profound impact on creating a more positive and fulfilling life.
 

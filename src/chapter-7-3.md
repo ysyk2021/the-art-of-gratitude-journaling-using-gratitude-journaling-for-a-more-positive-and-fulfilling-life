@@ -1,5 +1,3 @@
-Measuring Progress and Success
-=========================================
 
 Measuring progress and success in your gratitude journaling practice provides insights into the impact it has on your well-being and personal growth. In this chapter, we will explore various ways to evaluate and track your progress, helping you stay motivated and witness the positive transformations that arise from your consistent gratitude practice.
 

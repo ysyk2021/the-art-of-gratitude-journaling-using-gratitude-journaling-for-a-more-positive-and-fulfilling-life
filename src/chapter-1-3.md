@@ -1,5 +1,3 @@
-How This Book Can Help You
-=====================================
 
 Welcome to "The Art of Gratitude Journaling: Using Gratitude Journaling for a More Positive and Fulfilling Life." In this chapter, we will explore how this book can assist you in cultivating a gratitude journaling practice that brings joy, fulfillment, and positivity into your life.
 

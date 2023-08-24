@@ -1,5 +1,3 @@
-Benefits of Gratitude Journaling for Personal Growth
-===============================================================
 
 Gratitude journaling is a powerful practice that can have a profound impact on personal growth and overall well-being. By cultivating a regular gratitude journaling habit, individuals can unlock a myriad of benefits that contribute to a more positive and fulfilling life. In this chapter, we will explore some of the key advantages of incorporating gratitude journaling into your daily routine.
 

@@ -1,5 +1,3 @@
-Finding Local Gratitude Journaling Resources
-=======================================================
 
 Finding local gratitude journaling resources can enhance your practice and provide opportunities for growth and connection within your community. In this chapter, we will explore various avenues to discover and engage with local resources that can support and inspire your gratitude journaling journey for a more positive and fulfilling life.
 

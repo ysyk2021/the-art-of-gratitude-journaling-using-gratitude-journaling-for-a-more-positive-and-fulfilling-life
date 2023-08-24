@@ -1,5 +1,3 @@
-Using Gratitude Journaling to Improve Physical Health
-================================================================
 
 Gratitude journaling not only has positive effects on our mental well-being but can also contribute to improving our physical health. In this chapter, we will explore how practicing gratitude through journaling can promote physical well-being and support a healthier lifestyle.
 

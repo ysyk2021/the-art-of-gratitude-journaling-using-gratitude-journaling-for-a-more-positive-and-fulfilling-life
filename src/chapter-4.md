@@ -1,5 +1,3 @@
-Part III: Mindful Gratitude Journaling Techniques
-=================================================
 
 Mindful gratitude journaling techniques can help individuals cultivate a deeper sense of appreciation and gratitude in their daily lives. In this part, we will explore basic and advanced mindful gratitude journaling techniques, as well as strategies for incorporating these techniques into daily life.
 

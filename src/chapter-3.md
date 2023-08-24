@@ -1,5 +1,3 @@
-Part II: Getting Started with Gratitude Journaling
-==================================================
 
 Gratitude journaling is a powerful tool that can help you cultivate a more positive and fulfilling life. Here are some tips for getting started with your gratitude practice.
 

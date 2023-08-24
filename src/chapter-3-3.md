@@ -1,5 +1,3 @@
-Finding Inspiration for Your Practice
-================================================
 
 Maintaining a consistent gratitude journaling practice can sometimes be challenging. In this chapter, we will explore various ways to find inspiration and keep your gratitude journaling practice vibrant and fulfilling. Discover new sources of inspiration and ignite your passion as you embark on a journey towards a more positive and fulfilling life.
 

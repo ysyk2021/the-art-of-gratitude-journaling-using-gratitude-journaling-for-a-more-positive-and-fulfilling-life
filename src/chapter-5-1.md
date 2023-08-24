@@ -1,5 +1,3 @@
-Using Gratitude Journaling to Improve Relationships
-==============================================================
 
 In this chapter, we will explore how gratitude journaling can be a powerful tool for improving our relationships. By cultivating gratitude and expressing appreciation in our everyday interactions, we can strengthen connections, foster empathy, and deepen the bonds with the people in our lives. Let's dive into the various ways gratitude journaling can enhance our relationships.
 

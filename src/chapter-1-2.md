@@ -1,5 +1,3 @@
-Understanding the Connection Between Mindfulness, Gratitude, and Well-Being
-=======================================================================================
 
 Mindfulness, gratitude, and well-being are interconnected elements that can bring immense joy and fulfillment to our lives. In this chapter, we will explore the profound relationship between mindfulness, gratitude, and overall well-being. By understanding this connection, you can cultivate a deeper appreciation for the transformative power of gratitude journaling.
 

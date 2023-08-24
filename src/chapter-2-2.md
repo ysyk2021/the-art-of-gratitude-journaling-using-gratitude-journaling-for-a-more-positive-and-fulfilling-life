@@ -1,5 +1,3 @@
-The Science Behind Gratitude Journaling
-==================================================
 
 Gratitude journaling is not just a subjective practice; it is also supported by scientific research. Over the years, numerous studies have delved into the effects of gratitude on mental and emotional well-being. In this chapter, we will explore the fascinating science behind gratitude journaling and understand why it is such a powerful tool for cultivating a more positive and fulfilling life.
 

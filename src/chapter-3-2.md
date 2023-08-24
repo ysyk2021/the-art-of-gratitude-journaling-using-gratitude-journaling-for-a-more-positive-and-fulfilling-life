@@ -1,5 +1,3 @@
-Setting Goals for Your Gratitude Practice
-=====================================================
 
 Setting goals for your gratitude journaling practice can provide direction and purpose, helping you make the most of this transformative habit. In this chapter, we will explore the importance of setting goals and provide guidance on how to establish meaningful objectives that enhance your gratitude practice and contribute to a more positive and fulfilling life.
 

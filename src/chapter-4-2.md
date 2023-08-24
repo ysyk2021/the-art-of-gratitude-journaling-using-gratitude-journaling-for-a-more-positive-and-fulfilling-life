@@ -1,5 +1,3 @@
-Advanced Mindful Gratitude Journaling Techniques
-============================================================
 
 In this chapter, we will delve into advanced techniques for practicing mindful gratitude journaling. These techniques will deepen your appreciation, expand your perspective, and bring about even greater positive transformation in your life. Explore these methods to elevate your gratitude practice to new heights.
 
