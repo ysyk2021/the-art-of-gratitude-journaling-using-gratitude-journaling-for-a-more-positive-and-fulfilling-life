@@ -1,4 +1,6 @@
+# The Art of Gratitude Journaling: Using Gratitude Journaling for a More Positive and Fulfilling Life
 
+Book Link: [https://zhengpublishing.com/the-art-of-gratitude-journaling-using-gratitude-journaling-for-a-more-positive-and-fulfilling-life/](https://zhengpublishing.com/the-art-of-gratitude-journaling-using-gratitude-journaling-for-a-more-positive-and-fulfilling-life/)
 
 The Art of Gratitude Journaling is a book that explores the practice of gratitude journaling and how it can help individuals lead a more positive and fulfilling life. The author delves into the science behind gratitude and offers practical tips on how to incorporate gratitude journaling into daily routines.
 
